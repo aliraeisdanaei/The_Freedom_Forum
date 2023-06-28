@@ -12,4 +12,5 @@ The history of the _now_ will be transcribed as the authors of this forum live t
 We will collect the anonymous snippets of life and its observations as we see them on the internet. 
 Our opinions will be openly challenged and discussed.
 
-Peruse the many directories of this repository and consider contributing. 
+Peruse the many directories of this repository by following the [table of contents](CONTENTS.md)
+and consider [contributing](CONTRIBUTION.md). 
