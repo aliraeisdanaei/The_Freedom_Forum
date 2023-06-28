@@ -9,7 +9,7 @@ I can get in trouble by my brith country of Iran for saying the _wrong_ things.
 I can get in trouble by other Iranians for saying _other wrong_ things. 
 In every country, whether in Iran, countries less free than Iran, and even in Canada, the _wrong_ thing still begets trouble.
 
-Inside of me, there are enough thoughts to get in to trouboe for a thousdand and one ways. 
+Inside me, there are enough thoughts to get in to trouble for a thousand and one ways. 
 This is hardly a fact unique about me; it's true for everyone. 
 Yes, even you, and yes, even you in Canada, Germany, Iran, or wherever else. 
 
